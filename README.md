@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Newnugget1
+- 👀 I’m interested in Roblox
+- 🌱 I’m currently learning [UNAVAILAVABLE]
+- 💞️ I’m looking to collaborate on [UNAVAILAVABLE]
+- 📫 How to reach me [UNAVAILAVABLE]
